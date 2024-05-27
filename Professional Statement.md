@@ -1,3 +1,3 @@
-# Cybersecurity Analyst Personal Statement
+# Cybersecurity Analyst Professional Statement
 
 In my past few years in IT I've developed skills in communication, problem solving, and programming but in this increasingly competitive market amid massive big tech layoffs it's time I certify my skills both for my own personal development and also for prospective employers. Cybersecurity is a force of nature at this point in the modern digital landscape and not keeping up with today's standards could have serious consequences. 
